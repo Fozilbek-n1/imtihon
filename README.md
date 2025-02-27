@@ -1,0 +1,2 @@
+# imtihon
+imtihondan otaman
